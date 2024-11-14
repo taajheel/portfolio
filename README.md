@@ -1,4 +1,2 @@
 # portfolio
-The Creator
-The Message
-The Messenger 
+Coming Soon .....
